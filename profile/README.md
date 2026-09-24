@@ -1,12 +1,12 @@
-## [Receive SMS Online America](https://freereceivesms.top/) – Free US Temporary Phone Numbers
+## [Receive SMS Online America](https://otpdrop.com/) – Free US Temporary Phone Numbers
 
-**[Receive SMS online America](https://freereceivesms.top/)** is a simple and secure way to get text messages using temporary US phone numbers. This service allows you to receive SMS online without a SIM card, registration, or exposing your personal phone number. It’s ideal for verification codes, account sign-ups, and protecting your privacy.
+**[Receive SMS online America](https://otpdrop.com/)** is a simple and secure way to get text messages using temporary US phone numbers. This service allows you to receive SMS online without a SIM card, registration, or exposing your personal phone number. It’s ideal for verification codes, account sign-ups, and protecting your privacy.
 
-[![button](https://github.com/user-attachments/assets/d42c1817-2526-410d-9440-563356d42d4e)](https://freereceivesms.top/)
+[![button](https://github.com/user-attachments/assets/d42c1817-2526-410d-9440-563356d42d4e)](https://otpdrop.com/)
 
 ## What Does “Receive SMS Online America” Mean?
 
-**[Receive SMS Online America](https://freereceivesms.top/)** means using a virtual US phone number to receive SMS messages directly in your browser. You don’t need a physical phone, mobile operator, or application. Just select a US number and view incoming messages instantly.
+**[Receive SMS Online America](https://otpdrop.com/)** means using a virtual US phone number to receive SMS messages directly in your browser. You don’t need a physical phone, mobile operator, or application. Just select a US number and view incoming messages instantly.
 
 This method is widely used for testing services, creating accounts, and avoiding spam.
 
